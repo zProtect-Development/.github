@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/zProtect-Development/BrandAssets/main/zProtect_desktopRes.png?token=GHSAT0AAAAAABXY4SI34EG4Q6OW3CBAKYPUYYEZHAQ)
+![](https://i.imgur.com/gW0coaV.png)
 
 ### [Our Website](https://zprotect.dev)
 
